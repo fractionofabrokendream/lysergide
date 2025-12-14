@@ -1,3 +1,3 @@
 # lysergide
-i dont know how this stuff works
+i dont know how this stuff works actually nvm
 
