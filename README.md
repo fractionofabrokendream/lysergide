@@ -1,3 +1,3 @@
 # lysergide
-im testing stuff
+i dont know how this stuff works
 
